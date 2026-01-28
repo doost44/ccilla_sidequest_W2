@@ -1,6 +1,6 @@
 ## Project Title
 
-Blob Anger and Mischief
+Blob Emotional Journey
 
 ---
 
